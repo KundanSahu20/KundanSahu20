@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KundanSahu20
-- 👀 I’m interested in Software Devlopement
+- 👀 I’m interested in Software Devlopement,Programming Languages,Learn New Thing About Technology
 - 🌱 I’m currently BCA III 
 - 💞️ I’m looking to collaborate on .....
 - 📫 How to reach me kundan._sahu (instragram)
